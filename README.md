@@ -184,4 +184,4 @@
 
 
 
-![image alt] (https://github.com/jhannabueta03-droid/mannaclothingph.com.ph/blob/main/photo_2026-07-21_17-30-08.jpg?raw=true)
+![image alt] (https://github.com/jhannabueta03-droid/mannaclothingph.com.ph/blob/main/photo_2026-07-21_17-30-08.jpg?raw=true))
